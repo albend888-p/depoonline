@@ -1,1 +1,1 @@
-Will be available in Q3-Q4 2024
+Will be available in Q4 2024
